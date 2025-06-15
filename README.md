@@ -1,4 +1,4 @@
 ## README.md
 
-Student @ International Burch University - Still learning... 👋👋
+Student @ International Burch University - Always learning... 👋👋
 
